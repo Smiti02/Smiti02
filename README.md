@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Smitirani
 - 👀 I’m interested in anything and everything
 - 🌱 I’m currently learning chemistry
-- 📫 How to reach me ...
+- 📫 How to reach me ... you can't
 - 😄 Pronouns: She/Her
 
 <!---
